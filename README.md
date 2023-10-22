@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **iqbal240456@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Gy_1AJXUW7M3sjZ2_lIs5pL2Ng0psCA3/view?usp=sharing](https://drive.google.com/file/d/1Gy_1AJXUW7M3sjZ2_lIs5pL2Ng0psCA3/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Gy_1AJXUW7M3sjZ2_lIs5pL2Ng0psCA3/view?usp=sharing](https://drive.google.com/file/d/1YjrPyI5nvAu5wDuj-RMOxj9VuYcXEFXp/view?usp=sharing)
 - My Portfolio :https://mohammad-iqbal-portfolio-nu-seven.vercel.app/
 
 <h3 align="left">Connect with me:</h3>
